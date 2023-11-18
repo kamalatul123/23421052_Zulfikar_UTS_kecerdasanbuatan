@@ -1,0 +1,1 @@
+# 23421052_Zulfikar_UTS_kecerdasanbuatan
